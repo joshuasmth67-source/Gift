@@ -1,2 +1,2 @@
 # Gift
-A trusted marketplace for all products
+Canvas painting 
